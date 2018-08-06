@@ -1,0 +1,1 @@
+{"abhanga":"mahnae ram hya cha nara","zhala":"प्रकार"}
